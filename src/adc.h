@@ -1,0 +1,1 @@
+khai bao cac bien, ham cho adc
